@@ -1,0 +1,2 @@
+# C-Users-MEHEDAN-Desktop-AWS-CloudFormation-v1-UDEMY-MASTER-CLASS.zip[AWS-CloudFormation-Course.pdf](https://github.com/confyUK/C-Users-MEHEDAN-Desktop-AWS-CloudFormation-v1-UDEMY-MASTER-CLASS.zip/files/11273113/AWS-CloudFormation-Course.pdf)
+[AWS-CloudFormation-Course.pdf](https://github.com/confyUK/C-Users-MEHEDAN-Desktop-AWS-CloudFormation-v1-UDEMY-MASTER-CLASS.zip/files/11273122/AWS-CloudFormation-Course.pdf)
